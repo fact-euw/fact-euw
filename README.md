@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @fact-euw
 - 👀 I’m interested in fivem
-- 🌱 I’m currently learning how to convince my crush
-- 💞️ I’m not looking to collaborate on
+- 🌱 I’m currently learning how to draw attention with no pen :)
+- 💞️ I’m not looking to collaborate
 - 📫 How to reach me : Narnia 87000
 
 <!---
